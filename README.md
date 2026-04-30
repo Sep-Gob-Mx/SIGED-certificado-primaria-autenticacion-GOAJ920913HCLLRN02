@@ -1,0 +1,2 @@
+# SIGED-certificado-primaria-autenticacion-GOAJ920913HCLLRN02
+GOAJ920913HCLLRN02
